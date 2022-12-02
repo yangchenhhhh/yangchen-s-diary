@@ -245,9 +245,9 @@
 
 哦对对！这周杭州下雪了！在11.30日和12.1日两天！鹅毛大雪！而且在树上、车上有一层积雪！
 
-<img src="D:\graduateStudy\日记\photo\662646aae15e287439646efcd751536.jpg" alt="662646aae15e287439646efcd751536" style="zoom: 33%;" />
+<img src="photo\662646aae15e287439646efcd751536.jpg" alt="662646aae15e287439646efcd751536" style="zoom: 33%;" />
 
-<img src="D:\graduateStudy\日记\photo\ccfef520ed86832213fe90ddb59433d.jpg" alt="ccfef520ed86832213fe90ddb59433d" style="zoom:33%;" />
+<img src="photo\ccfef520ed86832213fe90ddb59433d.jpg" alt="ccfef520ed86832213fe90ddb59433d" style="zoom:33%;" />
 
 
 
